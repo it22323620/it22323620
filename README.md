@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **mohamedmuaad4@gmail.com**
 
-- ⚡ Fun fact **Data Detective: I love digging into messy data and finding hidden patterns.**
+- ⚡ Fun fact **I love digging into messy data and finding hidden patterns.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
